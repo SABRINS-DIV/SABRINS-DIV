@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SABRINS-DIV
+- 👀 I’m interested in web development / design 
+- 🌱 I’m currently learning Htnl, css, python.. ect
+- 📫 How to reach me 
+- 😄 Pronouns: she / her
+- ⚡ Fun fact: I'm 15
